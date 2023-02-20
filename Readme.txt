@@ -1,1 +1,1 @@
-Takhmina Pulatova
+T a
